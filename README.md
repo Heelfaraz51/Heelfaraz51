@@ -1,0 +1,5 @@
+- 👋 Hi, I’m @Heelfaraz
+- 👀 cricket 
+- 🌱 Computer/Mobile
+- 💞️ Hacker~Heel
+- 📫 How to reach me . Telegram: @MrHeel_51
